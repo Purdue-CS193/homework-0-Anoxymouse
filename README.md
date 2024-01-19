@@ -5,7 +5,7 @@
 
 ## My Favortie things about CS193:
 
-## - It's lead by OUR Students!
+### - It's lead by OUR Students!
 
 ### - It's slow-paced. (Great for freshmen) 
 
