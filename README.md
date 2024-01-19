@@ -7,7 +7,7 @@
 
 ### - It's lead by OUR Students!
 
-### - It's slow-paced. (Great for freshmen) 
+### - It's moderately paced (Great for freshmen) 
 
 ### - Very Helpful instructors
 
